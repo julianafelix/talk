@@ -1,1 +1,5 @@
-# Essa pasta será guardada as Talks dessa vida.
+# Talks de eventos pelo mundo a fora...
+
+
+Contato:
+julliana_f@live.com
